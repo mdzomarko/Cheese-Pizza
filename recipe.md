@@ -1,0 +1,1 @@
+combine ingredients and cook at 350 degrees for 20 minutes
